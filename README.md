@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **mrzeeofficial.4@gmail.com** For Collaboration/Project or 
 - 🌱 **I’m currently learning:** MERN STACK
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** mrzeeofficial.4@gmail.com
-- 😄 **Pronouns:**Mr Zee
+- 😄 **Pronouns:** Mr Zee
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me..
 
 ## 🌐 Socials:
